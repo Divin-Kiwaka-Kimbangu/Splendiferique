@@ -1,2 +1,2 @@
-# Splendiferique
+
 Provenance divine 😇
